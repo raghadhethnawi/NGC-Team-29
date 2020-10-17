@@ -1,10 +1,6 @@
 
 
+## My team is the best
 
 
-
-
-
-
-
-Juan de la Cruz
+I like apples
